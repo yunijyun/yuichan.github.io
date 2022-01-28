@@ -1,0 +1,1 @@
+# yuichan.github.io
